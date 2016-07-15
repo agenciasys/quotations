@@ -83,8 +83,6 @@
 
 --
 
-> A besteira está nos olhos de quem ouve.
-
->**"ALVES, Neivo**
+> A besteira está nos olhos de quem ouve. **"ALVES, Neivo**
 
 --
