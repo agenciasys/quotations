@@ -82,3 +82,9 @@
 >**YABU, Bruno**
 
 --
+
+> A besteira está nos olhos de quem ouve.
+
+>**"ALVES, Neivo**
+
+--
